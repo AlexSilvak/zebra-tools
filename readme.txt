@@ -1,0 +1,1 @@
+https://docs.zebra.com/br/pt/printers/desktop/gk420d-user-guide/t-gk420d-ug-print-operations/c-gk420d-ug-adjusting-the-print-quality.html
